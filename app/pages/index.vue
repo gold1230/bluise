@@ -10,7 +10,7 @@ Despite its relatively small area (roughly the same as California), Morocco has 
 
 Moroccans remain among of the world's kindest and most hospitable people despite a long history of strangers swooping in and Arabizing, then westernizing, their original Berber traditions. Any visitor who has visited Morocco will tell you that the people there are some of the friendliest and most welcoming in the world.
 
-Plan a trip to Morocco. Learn About Morocco's Rich History and <a href="https://moroccoexpedition.com/">Friendly People Tours</a> may be scheduled by calling (800) 787-8806. Contact us and we'll help you plan your trip to Morocco.
+Plan a trip to Morocco. Learn About Morocco's Rich History and <a href="https://moorishtour.com/">Friendly People Tours</a> may be scheduled by calling (800) 787-8806. Contact us and we'll help you plan your trip to Morocco.
 
 Most people think of Morocco as an Arab country, but that's not accurate. Although it is true that the majority of Moroccans are Muslims, the country is more accurately defined as a mix of Arabs and Berbers. Moroccans trace their ancestry back to a people group called the Berbers. At the end of the seventh century, the Arabs came, having already conquered most of North Africa and the Middle East in the service of their new revolutionary creed, Islam. Nearly all Berbers eventually became Muslims, and their newfound faith was welcomed by their Arab neighbors. Muslims from Morocco conquered the Iberian peninsula, and the majority of their army were Berbers. Eventually, the two cultures blended.
 
